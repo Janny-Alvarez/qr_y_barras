@@ -1,3 +1,3 @@
 <img width="1282" height="922" alt="image" src="https://github.com/user-attachments/assets/768072dd-bf74-423d-bf5d-64632d435429" />
-![Imagen de WhatsApp 2025-09-01 a las 20 16 13_537bf3bc](https://github.com/user-attachments/assets/21c5f7d1-d0f9-4b38-8134-345807f71cee)
-![Imagen de WhatsApp 2025-09-01 a las 20 16 13_295d235f](https://github.com/user-attachments/assets/2921b2bd-cf22-495e-93eb-441508e89a1b)
+<img width="381" height="797" alt="image" src="https://github.com/user-attachments/assets/9bab3cac-343b-4788-9a11-d8ce4913de00" />
+<img width="377" height="798" alt="image" src="https://github.com/user-attachments/assets/b4b30d38-074f-454d-b8bd-6b086cbd9a7a" />
